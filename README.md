@@ -2,7 +2,7 @@
 - 👀 I’m interested in everything 
 - 🌱 I’m currently learning fun things on roblox 
 - 💞️ I’m looking to collaborate on roblox 
-- 📫 How to reach me roblox 
+- 📫 How~•💫💫🥵
 - 😄 Pronouns: navya
 - ⚡ Fun fact: I play roblox 
 
